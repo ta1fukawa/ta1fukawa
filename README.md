@@ -1,1 +1,1 @@
-Please see [https://ta1fukawa.github.io/profile/](https://ta1fukawa.github.io/profile/). (Written in Japanese)
+Please see [https://ta1fukawa.github.io/profile/](https://ta1fukawa.github.io/profile/). (Only Japanese)
